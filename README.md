@@ -1,7 +1,7 @@
 # Decaying Dolls Systems 🩸🦴
 _"Good day. Please allow me a moment of prayer... before I resume my work for the day..."_
 #
-🩸 **Specter/Whisperain/Erin | She/They/It & other neos, mostly Doll/Fang. | Asian** 🩸
+🩸 **Specter/Whisperain/Erin | She/They/It & other neos, mostly Doll/Fang. | Asian | Dollkin.** 🩸
 
 **Feel free to interact with me, cuddle or kiss idm! although sometimes I'm in a badmood and rarely reply (having a bad day), but I'll enjoy every conversation and up to make new friends!**
 
