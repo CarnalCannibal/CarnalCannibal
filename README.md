@@ -1,5 +1,8 @@
 # Decaying Dolls Systems 🩸🦴
 _"Good day. Please allow me a moment of prayer... before I resume my work for the day..."_
+![image](https://github.com/FracturedBody/FracturedBody/assets/159403776/a98b1d10-94f9-40dd-868a-9f6e844f3c08)
+
+
 #
 🩸 **Specter/Whisperain/Erin | She/They/It & other neos, mostly Doll/Fang. | Asian | Dollkin.** 🩸
 
