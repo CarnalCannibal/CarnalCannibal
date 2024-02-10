@@ -1,6 +1,7 @@
 # Decaying Dolls Systems 🩸🦴
 _"Good day. Please allow me a moment of prayer... before I resume my work for the day..."_
-![image](https://github.com/FracturedBody/FracturedBody/assets/159403776/a98b1d10-94f9-40dd-868a-9f6e844f3c08)
+![image](https://github.com/FracturedBody/FracturedBody/assets/159403776/34c7e13f-9d07-4f0a-9b3c-44ce445588e8)
+
 
 
 #
