@@ -1,9 +1,6 @@
 # Decaying Dolls Systems 🩸🦴
 _"Good day. Please allow me a moment of prayer... before I resume my work for the day..."_
-![image](https://github.com/FracturedBody/FracturedBody/assets/159403776/34c7e13f-9d07-4f0a-9b3c-44ce445588e8)
-
-
-
+![image](https://github.com/FracturedBody/FracturedBody/assets/159403776/36361cfb-11a1-4578-9284-7e8e7e469dbc)
 #
 🩸 **Specter/Whisperain/Erin | She/They/It & other neos, mostly Doll/Fang. | Asian | Dollkin.** 🩸
 
@@ -16,7 +13,8 @@ _"Good day. Please allow me a moment of prayer... before I resume my work for th
 - People who doesn't respect boundaries.
 - Proshippers. (Immediately blocked.)
 - People under 17.
-- Murder Drones, Genshin Impact, BTD, Prosekai fandom.
+- Murder Drones, Genshin Impact, Prosekai fandom. (thin ice tbh)
+- The coffin of Andy and Leyley, Boyfriend to death (Disgusting)
 - ERP/Overused cat skin/Dick ponies/Overused Indonesian BW ponies.
 
 🦴**INTERACT IF**
