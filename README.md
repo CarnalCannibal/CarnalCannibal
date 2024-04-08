@@ -27,3 +27,5 @@ _"Good day. Please allow me a moment of prayer... before I resume my work for th
 -Musics : Slipknot, Korn, Nirvana, Linkin park, Starset, Deftones, Ladymonsters, Lappy.
 
 -Others I like : SCP, Drawing, cosplaying, animals, liminal space.
+
+![image](https://github.com/CarnalCannibal/FracturedBody/assets/159403776/48010fd6-477d-4442-84d4-806acda055af)
