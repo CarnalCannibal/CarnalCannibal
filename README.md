@@ -20,6 +20,9 @@ _"Good day. Please allow me a moment of prayer... before I resume my work for th
   
 🦴**My things!**
 -Games : Arknights, Path to Nowhere, Cookie run, Roblox (Ask me to play together!), Little nightmares, Undertale, any puppetcombo games!
+
 -Movies : all Texas Chainsaw massacre movies, House of Wax, A quiet place (rarely watch movies)
+
 -Musics : Slipknot, Korn, Nirvana, Linkin park, Starset, Deftones, Ladymonsters, Lappy.
+
 -Others I like : SCP, Drawing, cosplaying, animals, liminal space.
