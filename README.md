@@ -19,6 +19,7 @@ _"Good day. Please allow me a moment of prayer... before I resume my work for th
 - B&W Indonesian ponies (you're annoying!!)
   
 🦴**My things!**
+
 -Games : Arknights, Path to Nowhere, Cookie run, Roblox (Ask me to play together!), Little nightmares, Undertale, any puppetcombo games!
 
 -Movies : all Texas Chainsaw massacre movies, House of Wax, A quiet place (rarely watch movies)
