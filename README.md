@@ -3,7 +3,7 @@ _"Good day. Please allow me a moment of prayer... before I resume my work for th
 ![image](https://github.com/CarnalCannibal/FracturedBody/assets/159403776/b5104d6d-28ef-4d34-961d-ef9730855ef8)
 
 #
-🩸 **Myriad/Vincent | He/They & Fang/Claw | Asian | Dollkin.** 🩸
+🩸 **Myriad/Vincent | He/They & Fang/Claw | Asian | Transmasc.** 🩸
 
 **Hii! I'm an artist! Feel free to interact with me, cuddle or kiss idm! although sometime rarely reply (sometimes busy or just forgot to reply), but I'll enjoy every conversation and up to make new friends (I'm friendly dw!!)!**
 
