@@ -5,9 +5,9 @@
 
 ![image](https://github.com/user-attachments/assets/c9981695-e2c4-4bc0-8138-84a608a4ce28) 𝐌𝐲𝐫𝐢𝐚𝐝/𝐌𝐲𝐫𝐢 || 𝐀𝐬𝐢𝐚𝐧 || 𝟏𝟖+ || 𝐀𝐮𝐁𝐏𝐃 || 𝐒𝐲𝐬𝐭𝐞𝐦 𝐡𝐨𝐬𝐭. 
 
-![image](https://github.com/user-attachments/assets/67ecbac0-c4cc-40f1-be23-9a5888f67110) 𝐀𝐧 𝐚𝐫𝐭𝐢𝐬𝐭! 𝐂𝐡𝐚𝐫𝐚𝐜𝐭𝐞𝐫 𝐝𝐞𝐬𝐢𝐠𝐧𝐬, 𝐎𝐂𝐬, 𝐅𝐚𝐧𝐚𝐫𝐭. 𝐖𝐨𝐮𝐥𝐝 𝐥𝐨𝐯𝐞 𝐚𝐧 𝐚𝐫𝐭𝐢𝐬𝐭 𝐟𝐫𝐢𝐞𝐧𝐝𝐬<𝟑
+![image](https://github.com/user-attachments/assets/67ecbac0-c4cc-40f1-be23-9a5888f67110) 𝐀𝐧 𝐚𝐫𝐭𝐢𝐬𝐭! 𝐂𝐡𝐚𝐫𝐚𝐜𝐭𝐞𝐫 𝐝𝐞𝐬𝐢𝐠𝐧𝐬, 𝐎𝐂𝐬, 𝐅𝐚𝐧𝐚𝐫𝐭. 𝐖𝐨𝐮𝐥𝐝 𝐥𝐨𝐯𝐞 𝐚𝐧 𝐚𝐫𝐭𝐢𝐬𝐭 𝐟𝐫𝐢𝐞𝐧𝐝<𝟑
 
-![image](https://github.com/user-attachments/assets/065a4288-90e7-490e-ba70-2943706d65d7) 𝐅𝐞𝐞𝐥 𝐟𝐫𝐞𝐞 𝐭𝐚𝐥𝐤𝐢𝐧𝐠 𝐭𝐨 𝐦𝐞! 𝐦𝐨𝐬𝐭𝐥𝐲 𝐬𝐢𝐭𝐭𝐢𝐧𝐠 𝐰𝐢𝐭𝐡 𝐦𝐲 𝐨𝐨𝐦𝐟𝐢𝐞𝐬 𝐨𝐧 𝐭𝐡𝐞 𝐜𝐫𝐞𝐞𝐩𝐲 𝐜𝐨𝐫𝐧𝐞𝐫 (𝐌𝐚𝐫𝐤𝐞𝐭'𝐬 𝐛𝐥𝐚𝐜𝐤𝐬𝐦𝐢𝐭𝐡). 𝐂𝐚𝐧 𝐛𝐞 𝐚𝐟𝐤 𝐭𝐡𝐞𝐫𝐞𝐟𝐨𝐫𝐞 𝐫𝐞𝐜𝐨𝐦𝐦𝐞𝐧𝐝𝐞𝐝 𝐭𝐨 𝐰𝐡𝐢𝐬𝐩𝐞𝐫 𝐢𝐧𝐬𝐭𝐞𝐚𝐝. 
+![image](https://github.com/user-attachments/assets/065a4288-90e7-490e-ba70-2943706d65d7) 𝐅𝐞𝐞𝐥 𝐟𝐫𝐞𝐞 𝐭𝐚𝐥𝐤𝐢𝐧𝐠 𝐭𝐨 𝐦𝐞! 𝐦𝐨𝐬𝐭𝐥𝐲 𝐬𝐢𝐭𝐭𝐢𝐧𝐠 𝐰𝐢𝐭𝐡 𝐦𝐲 𝐨𝐨𝐦𝐟𝐢𝐞𝐬 𝐨𝐧 𝐭𝐡𝐞 𝐜𝐫𝐞𝐞𝐩𝐲 𝐜𝐨𝐫𝐧𝐞𝐫 (𝐌𝐚𝐫𝐤𝐞𝐭'𝐬 𝐛𝐥𝐚𝐜𝐤𝐬𝐦𝐢𝐭𝐡) 𝐨𝐫 𝐓𝐡𝐞 𝐜𝐚𝐦𝐩𝐬𝐢𝐭𝐞. 𝐂𝐚𝐧 𝐛𝐞 𝐚𝐟𝐤 𝐭𝐡𝐞𝐫𝐞𝐟𝐨𝐫𝐞 𝐫𝐞𝐜𝐨𝐦𝐦𝐞𝐧𝐝𝐞𝐝 𝐭𝐨 𝐰𝐡𝐢𝐬𝐩𝐞𝐫 𝐢𝐧𝐬𝐭𝐞𝐚𝐝. 
 
 
 ![image](https://github.com/user-attachments/assets/4a3c1686-6da7-4577-8925-2df1b12b5a0c)
@@ -16,11 +16,8 @@
 𝐃𝐍𝐈![image](https://github.com/user-attachments/assets/b0cd76b3-efac-4f92-954e-bcb01319c662)
 
 - Basic DNI criteria (Homophobe, Transphobe, Proshipper, racist, etc.) 
-- People who constantly talk about Kikuo.
-- Weird Clefdraki shipper. (Systems is fine.) 
-- Weird pony skin.
-- TCOAAL FANDOM!! (immediate block.) 
-- Indonesian. (oomfs excluded.)
+- Dick pony skin.
+- TCOAAL FANDOM!! (immediate block.)  
 - Blue archives/Nikke fandom.
 - Lolicon/Shotacon.
 - People who made fun of TT/TD or DNI/DNT.
@@ -34,7 +31,9 @@
 - Any BTD skins
 - Dr. Jack Bright skin. 
 - Genshin/Honkai/WuWa fandom.
-
+- Clefdraki shipper. (Systems are fine.)
+- Indonesian. (oomfs excluded.)
+ 
   ![image](https://github.com/user-attachments/assets/2a671413-84bd-46b3-b13a-a9c630945fd9)
 
 
