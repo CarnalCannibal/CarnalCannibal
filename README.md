@@ -3,7 +3,7 @@
 ![image](https://github.com/user-attachments/assets/fb8a9312-eef9-4181-9667-a99aaea578f9) ![image](https://github.com/user-attachments/assets/5a11a4ba-3467-459d-9646-319bf3b83865)
 ![image](https://github.com/user-attachments/assets/6c4b2483-6c9b-46ed-9432-722ecab2f7e3)![image](https://github.com/user-attachments/assets/47fe651d-ac68-4750-8837-e0db4ef4ad87)![image](https://github.com/user-attachments/assets/91ef62b7-d392-4e02-a650-15e2b958d331)![image](https://github.com/user-attachments/assets/fb1f6607-14dc-4a1c-b7a0-7ec82d57d978)![image](https://github.com/user-attachments/assets/fb4b2412-425a-4d1d-958f-019dbc7b1b18)
 
-![image](https://github.com/user-attachments/assets/c9981695-e2c4-4bc0-8138-84a608a4ce28) 𝐌𝐲𝐫𝐢𝐚𝐝/𝐌𝐲𝐫𝐢 || 𝐀𝐬𝐢𝐚𝐧 || 𝟏𝟖+ || 𝐀𝐮𝐁𝐏𝐃 || 𝐒𝐲𝐬𝐭𝐞𝐦 𝐡𝐨𝐬𝐭. 
+![image](https://github.com/user-attachments/assets/c9981695-e2c4-4bc0-8138-84a608a4ce28) 𝐌𝐲𝐫𝐢𝐚𝐝/𝐌𝐲𝐫𝐢 || 𝐀𝐬𝐢𝐚𝐧 || 𝟏𝟖+ || 𝐀𝐮𝐁𝐏𝐃 ||
 
 ![image](https://github.com/user-attachments/assets/67ecbac0-c4cc-40f1-be23-9a5888f67110) 𝐀𝐧 𝐚𝐫𝐭𝐢𝐬𝐭! 𝐂𝐡𝐚𝐫𝐚𝐜𝐭𝐞𝐫 𝐝𝐞𝐬𝐢𝐠𝐧𝐬, 𝐎𝐂𝐬, 𝐅𝐚𝐧𝐚𝐫𝐭. 𝐖𝐨𝐮𝐥𝐝 𝐥𝐨𝐯𝐞 𝐚𝐧 𝐚𝐫𝐭𝐢𝐬𝐭 𝐟𝐫𝐢𝐞𝐧𝐝<𝟑
 
@@ -21,6 +21,9 @@
 - Blue archives/Nikke fandom.
 - Lolicon/Shotacon.
 - People who made fun of TT/TD or DNI/DNT.
+- Fujoshi
+- People who joke about Jimmy's name or making zoophile joke about him. (y'all are annoying.)
+- Moutwashing Canon x Canon shipper (OC x Canon are fine!)
   
  ![image](https://github.com/user-attachments/assets/4cb65d98-ffa1-45d3-b9c8-95508befb778)
 
@@ -47,7 +50,7 @@
 
 - Frostbite![image](https://github.com/user-attachments/assets/f4ecf665-e627-4559-9c7b-885af92e74d8)
 
-- Reverse:1999![image](https://github.com/user-attachments/assets/a4e62bc5-d737-4c39-bb14-d06e9779fac1)
+- Mouthwashing![image](https://github.com/user-attachments/assets/a4e62bc5-d737-4c39-bb14-d06e9779fac1)
 
 ![image](https://github.com/user-attachments/assets/84db934a-f238-4a86-8b47-d5f788292f2d)
 
